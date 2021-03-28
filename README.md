@@ -1,1 +1,1 @@
-![alt text](https://github.com/stoneking007/stoneking007/blob/main/attachment/rokect.gif?raw=true)
+![alt text](https://github.com/stoneking007/stoneking007/blob/main/attachment/people.gif?raw=true)
